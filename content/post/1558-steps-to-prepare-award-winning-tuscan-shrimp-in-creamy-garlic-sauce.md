@@ -1,0 +1,99 @@
+---
+description: "Steps to Prepare Award-winning Tuscan Shrimp in creamy garlic sauce"
+title: "Steps to Prepare Award-winning Tuscan Shrimp in creamy garlic sauce"
+slug: 1558-steps-to-prepare-award-winning-tuscan-shrimp-in-creamy-garlic-sauce
+date: 2020-08-22T18:26:19.425Z
+image: https://img-global.cpcdn.com/recipes/b441a5e426089425/751x532cq70/tuscan-shrimp-in-creamy-garlic-sauce-recipe-main-photo.jpg
+thumbnail: https://img-global.cpcdn.com/recipes/b441a5e426089425/751x532cq70/tuscan-shrimp-in-creamy-garlic-sauce-recipe-main-photo.jpg
+cover: https://img-global.cpcdn.com/recipes/b441a5e426089425/751x532cq70/tuscan-shrimp-in-creamy-garlic-sauce-recipe-main-photo.jpg
+author: Jason Reese
+ratingvalue: 5
+reviewcount: 24538
+recipeingredient:
+- "24 oz large shrimp tails on"
+- "6 garlic cloves minced"
+- "4 Tbsp butter I use unsalted"
+- "3 C fresh spinach trim stems"
+- "2 1/2 tsp dried Italian herbs or 1 tsp each dried basil"
+- " oregano and parsley"
+- "1 small vidalia onion diced"
+- "5 oz sun dried tomato strips drain off oil"
+- "3/4 C white wine"
+- "1 3/4 C half and half"
+- "1 tsp salt 12 tsp pepper"
+- "1 C fresh parmesan cheese grated"
+- "1 tsp cornstarch 1 Tbsp cold water to thicken sauce"
+- "1 1/2 Tbsp fresh parsley chopped"
+recipeinstructions:
+- "Heat a large pan over medium heat. Melt 2 Tbsp butter and saute garlic for 2 minutes. Add shrimp and cook for 2 minutes on each side (until pink). Put in a bowl and set aside."
+- "Melt 2 Tbsp butter and cook onion for 2-3 minutes until softened. Pour in white wine and let this reduce a little. Add the sundried tomatoes and cook for about 2 minutes."
+- "Reduce heat down to medium-low and add the half and half. Bring to a simmer stirring frequently. Now add S&amp;P."
+- "Add the spinach leaves and let them wilt into the sauce. Add the parmesan cheese and simmer for another minute. Add the water/cornstarch mixture and keep simmering and stirring until sauce thickens."
+- "Put shrimp back in the pan; sprinkle in the herbs and chopped parsley. Stir together and simmer for a few minutes to heat everything together."
+- "Serve over pasta."
+categories:
+- Recipe
+tags:
+- tuscan
+- shrimp
+- in
+
+katakunci: tuscan shrimp in 
+nutrition: 294 calories
+recipecuisine: American
+preptime: "PT20M"
+cooktime: "PT57M"
+recipeyield: "1"
+recipecategory: Dessert
+
+---
+
+
+![Tuscan Shrimp in creamy garlic sauce](https://img-global.cpcdn.com/recipes/b441a5e426089425/751x532cq70/tuscan-shrimp-in-creamy-garlic-sauce-recipe-main-photo.jpg)
+
+Hey everyone, hope you are having an incredible day today. Today, I will show you a way to make a special dish, tuscan shrimp in creamy garlic sauce. It is one of my favorites food recipes. This time, I will make it a bit tasty. This is gonna smell and look delicious.
+
+Tuscan Shrimp in creamy garlic sauce is one of the most popular of current trending foods on earth. It's simple, it's quick, it tastes yummy. It is appreciated by millions daily. Tuscan Shrimp in creamy garlic sauce is something which I've loved my entire life. They are fine and they look wonderful.
+
+
+
+
+To get started with this recipe, we have to prepare a few ingredients. You can cook tuscan shrimp in creamy garlic sauce using 14 ingredients and 6 steps. Here is how you cook it.
+
+<!--inarticleads1-->
+
+##### The ingredients needed to make Tuscan Shrimp in creamy garlic sauce:
+
+1. Take 24 oz large shrimp, tails on
+1. Make ready 6 garlic cloves, minced
+1. Prepare 4 Tbsp butter, I use unsalted
+1. Make ready 3 C fresh spinach, trim stems
+1. Make ready 2 1/2 tsp dried Italian herbs, or 1 tsp each: dried basil,
+1. Get  oregano and parsley
+1. Make ready 1 small vidalia onion, diced
+1. Prepare 5 oz sun dried tomato strips, drain off oil
+1. Make ready 3/4 C white wine
+1. Prepare 1 3/4 C half and half
+1. Get 1 tsp salt, 1/2 tsp pepper
+1. Make ready 1 C fresh parmesan cheese, grated
+1. Make ready 1 tsp cornstarch, 1 Tbsp cold water to thicken sauce
+1. Prepare 1 1/2 Tbsp fresh parsley, chopped
+
+
+
+
+<!--inarticleads2-->
+
+##### Steps to make Tuscan Shrimp in creamy garlic sauce:
+
+1. Heat a large pan over medium heat. Melt 2 Tbsp butter and saute garlic for 2 minutes. Add shrimp and cook for 2 minutes on each side (until pink). Put in a bowl and set aside.
+1. Melt 2 Tbsp butter and cook onion for 2-3 minutes until softened. Pour in white wine and let this reduce a little. Add the sundried tomatoes and cook for about 2 minutes.
+1. Reduce heat down to medium-low and add the half and half. Bring to a simmer stirring frequently. Now add S&amp;P.
+1. Add the spinach leaves and let them wilt into the sauce. Add the parmesan cheese and simmer for another minute. Add the water/cornstarch mixture and keep simmering and stirring until sauce thickens.
+1. Put shrimp back in the pan; sprinkle in the herbs and chopped parsley. Stir together and simmer for a few minutes to heat everything together.
+1. Serve over pasta.
+
+
+
+
+So that's going to wrap it up with this special food tuscan shrimp in creamy garlic sauce recipe. Thank you very much for reading. I am confident that you will make this at home. There's gonna be interesting food in home recipes coming up. Don't forget to bookmark this page in your browser, and share it to your family, friends and colleague. Thank you for reading. Go on get cooking!
